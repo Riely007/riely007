@@ -2,5 +2,5 @@
 <br>
 I'm Riely (*≧ω≦)
 
-Some shards: Ethereum, Less Wrong, SSC and Effective Altruism, etc.
+Some shards: Ethereum, Less Wrong, SSC and Effective Altruism.
 
